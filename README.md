@@ -1,4 +1,4 @@
-# Arab Conversation - Privacy Policy
+# Kotobekia - Privacy Policy
 
 **Effective Date:** August 19, 2024
 
